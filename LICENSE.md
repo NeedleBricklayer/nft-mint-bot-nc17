@@ -1,4 +1,4 @@
-# 
+# exclusive NFT Scanner for nft mint bot | take-profit & bundle-transactions offers the most advanced nft mint bot, with take-profit and bundle-transactions. Ideal for professional
 
 
 
